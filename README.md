@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @e2ue4
+- 👀 I’m interested in hacking and seoftware enjinering
+- 🌱 I’m currently learning at school.
+- 💞️ I’m looking to collaborate on some hackers
+- 📫 How to reach me ...
+- 😄 Pronouns: He, Him
+- ⚡ Fun fact: i am s2om4one
